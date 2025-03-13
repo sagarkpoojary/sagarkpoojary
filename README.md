@@ -1,15 +1,6 @@
 ## Hi, I'm Sagar 
-
-🚀 Aspiring Tech Enthusiast | BCA Final Year Student 🎓  
-💡 Skilled in Data Analytics, AI, Cloud Computing & Full-Stack Development ☁️💻  
-👨‍💻 Passionate about building innovative solutions & real-time apps 🔥  
-🤝 Strong in teamwork, leadership, and problem-solving 💡  
-
-📌 Connect with me on Instagram: [(https://www.instagram.com/sagarrpoojaryy/)]
-
-
 # 💫 About Me:
-🚀 Aspiring Tech Enthusiast | BCA Final Year Student 🎓  <br>💡 Skilled in Data Analytics, AI, Cloud Computing & Full-Stack Development ☁️💻  <br>👨‍💻 Passionate about building innovative solutions & real-time apps 🔥  <br>🤝 Strong in teamwork, leadership, and problem-solving 💡  <br>
+🚀 Aspiring Tech Enthusiast | BCA Final Year Student 🎓  <br>💡 Skilled in Data Analytics, AI, Cloud Computing & Full-Stack Development ☁️💻  <br>👨‍💻 Passionate about building innovative solutions & real-time apps 🔥  <br>🤝 Strong in teamwork, leadership, and problem-solving 💡   📌 Connect with me on Instagram: [(https://www.instagram.com/sagarrpoojaryy/)]  <br>
 
 
 ## 🌐 Socials:
