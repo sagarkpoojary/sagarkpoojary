@@ -1,6 +1,6 @@
 ## Hi, I'm Sagar 
 # 💫 About Me:
-🚀 Aspiring Tech Enthusiast  <br>💡 Skilled in Data Analytics, AI, Cloud Computing & Full-Stack Development ☁️💻  <br>👨‍💻 Passionate about building innovative solutions & real-time apps 🔥  <br>🤝 Strong in teamwork, leadership, and problem-solving 💡   📌 Connect with me on Instagram: [(https://www.instagram.com/sagarrpoojaryy/)]  <br>
+🚀 Aspiring Tech Enthusiast  <br>💡 Skilled in Data Analytics, AI, Cloud Computing & Full-Stack Development ☁️💻  <br>👨‍💻 Passionate about building innovative solutions & real-time apps 🔥  <br>🤝 Strong in teamwork, leadership, and problem-solving 💡   📌 Connect with me on Instagram: [(https://sagarkpoojary.cloud)]  <br>
 
 
 ## 🌐 Socials:
